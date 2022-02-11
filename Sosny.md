@@ -1,1 +1,0 @@
-Sosny, Ubludok!
